@@ -1,0 +1,1 @@
+# ManasDzivesApraksts_CV
